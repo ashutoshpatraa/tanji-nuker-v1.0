@@ -1,6 +1,6 @@
-# Socialgangontop
+# skiddersgetfucked
 
-| Socialnuker v1 | 
+| tanjinuker v1 | 
 |  |
 
 
